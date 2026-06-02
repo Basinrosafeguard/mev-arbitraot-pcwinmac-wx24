@@ -1,4 +1,4 @@
-# 
+# Top MEV arbitrage bot complementos para Mac OS | Código aberto MEV arbitrage bot complementos para PC Windows. Com cache de dados e auditorias de segurança — otimizado para máximo desempeño en cada plataforma.
 
 
 
